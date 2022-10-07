@@ -1,1 +1,0 @@
-# Begrepp-och-Github
